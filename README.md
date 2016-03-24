@@ -18,3 +18,7 @@ As a priority, we will meet with the venue's management to put a process in plac
 As always we'd appreciate your input, and if there's anything more we can do please get in touch.
 
 Moving our events to a new venue was an important milestone for us because it supports the continued growth of the community.  We're hugely excited about the future of JSOxford, and we look forward to sharing some exciting announcements with you.
+
+- [Ben](https://twitter.com/benjaminbenben)
+- [Pete](https://twitter.com/peterjwest)
+- [Ryan](https://twitter.com/spikeheap)
