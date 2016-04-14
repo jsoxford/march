@@ -1,4 +1,4 @@
-Last week a lot of people made an effort to come to our event.  We're very sorry that we had to turn you away.
+On the 16th of March a lot of people made an effort to come to our event.  We're very sorry that we had to turn you away.
 
 This was our fault. Although we booked the venue some weeks ago, sent emails, and called the venue a week before the event, there was a miscommunication and the venue wasn't ready for us.
 
